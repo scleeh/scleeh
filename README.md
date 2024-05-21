@@ -12,6 +12,8 @@ Meu nome é Leticia Cristina
 
 @sc.leeh
 
-![]()![image](https://github.com/scleeh/scleeh/assets/170015622/6617c9de-147c-40cc-a196-9176e0671240)
+![]()![image](https://github.com/scleeh/scleeh/assets/170015622/fe83aae7-3d80-4ba0-af64-4fbaf511b58c)
+
+
 
 
